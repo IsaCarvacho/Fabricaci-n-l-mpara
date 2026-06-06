@@ -11,6 +11,6 @@
 [FabricSculpingMedium](https://www.jacquardproducts.com/fabric-sculpting-medium?utm_source=chatgpt.com) Liquido para esculpir especificamente en tela. Dificil de conseguir en Chile  
 
 ## Procesos tensamiento tela Tyvek  
-[TyvekLampshade](https://www.instructables.com/Tyvek-Lampshade/?utm_source=chatgpt.com) Tensamiento con estructura permanente. 
+[TyvekLampshade](https://www.instructables.com/Tyvek-Lampshade/?utm_source=chatgpt.com) Tensamiento con estructura permanente.  
 [HowToMakeFabricStiff](https://www.youtube.com/watch?v=3Jg5yn3sDOo) Rigidiza tela con mezla 50/50 de agua y pegamento/colafria  
 [FabricStiffener](https://www.youtube.com/watch?v=XyN_oo7G2TE) Usa agua, maicena, azúcar y "Mod podge" (Pegamento sellador), se puede reemplazar con cola fría. Queda la tela rígida. Hace pruebas
