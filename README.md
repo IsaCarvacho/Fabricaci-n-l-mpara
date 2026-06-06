@@ -1,7 +1,7 @@
 # Fabricación lámpara
 
 ## Trasnparencia en lámparas  
-[Knit](https://www.youtube.com/shorts/XXx5_ymVnro)
+[Knit](https://www.youtube.com/shorts/XXx5_ymVnro)  
 [Vibia](https://vibia.com/es/int/colecciones/lamparas-colgantes-knit-colgante) Knit de Meike Harde
 
 ## Lámparas con tela tyvek
